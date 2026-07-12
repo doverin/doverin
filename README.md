@@ -5,5 +5,9 @@
     ﹐⸝⸝  ﹐hyperxsexual ﾉ comshipper :  Comshipping is my coping mecha˙ . ꒷
 
              ➠ ⸝⸝   ⊹ dob :
- . , ₊˚       — :: prns; gender : AFAB ` but please use they ﾉ him
-        ⋮ ⋆.˚ pessimist : regular mood swings﹒  ◠   ✩ 
+ . , ₊˚       — :: prns; gender : AFAB ` but please use they ﾉ him\
+        ⋮ ⋆.˚ pessimist : regular mood swings﹒  ◠   ✩ \
+
+        Ryu irl
+
+        
